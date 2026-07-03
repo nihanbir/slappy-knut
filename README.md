@@ -22,10 +22,6 @@ https://clipchamp.com/watch/wmXUZVnNdpX
   Team Member - Sofie Persson
   
   Team Member - Hildur-Hanna Lönn-Holmqvist
-  
-
-
-Feel free to link any existing Linked.in Profiles or Portfolio Websites.
 
 ## Design Documents
 
